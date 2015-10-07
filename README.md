@@ -15,3 +15,8 @@ https://www.youtube.com/watch?v=ll2KFqlCTO4
 + Научись разбираться в людях. В их характере. Общайся с людьми.
 + Будь психологически устойчевым: не переживай, спи спокойно.
 + Получай удовольствие от бизнес борьбы.
+
+# The Surprising Benefits of a Quiet Ego
+http://www.quietrev.com/the-surprising-benefits-of-a-quiet-ego/
+
+> ...transcending, not enhancing, the self is the most powerful and direct pathway to contentment and inner peace.
